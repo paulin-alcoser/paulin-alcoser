@@ -9,7 +9,6 @@
 
 - 📫 How to reach me **paulin.alcoser@nyu.edu**
 
-- ⚡ Fun fact **My favorite thing about humans is that we are so stupid for each other**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
